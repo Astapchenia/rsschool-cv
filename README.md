@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Astapchenia.github.io/rsschool-cv/cv
